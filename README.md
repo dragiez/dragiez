@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working in Huawei Pakistan as a PCM in revenue department
+I'm currently working in Huawei Pakistan as a DOS IPM.
 
 
 ## 🌐 Socials:
